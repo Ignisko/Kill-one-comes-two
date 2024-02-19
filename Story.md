@@ -1,5 +1,5 @@
 
-#"Kill One Ant Comes Two Ants”
+# "Kill One Ant Comes Two Ants”
 ## by Sim Wong Hoo
 Everybody knows that ants are a nuisance and also hope that they will go away. The truth is the more you hope they will go away, the more they will come. Even when there is no more food on your table, they will still come. While you think are a nuisance, have you ever thought that there are your free cleaners too?
 Leave any scrap of food on the table, they will come and remove it away for you - free of charge. They leave no mess either. They may look messy when they have a big cleanup job to do. That is when you spill some sweet liquid on your table, and they come in droves to help you clean up. It's your fault, not theirs. They are just doing their job. 
